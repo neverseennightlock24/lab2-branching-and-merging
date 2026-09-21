@@ -54,7 +54,7 @@ This recipe makes a three-layer celebration cake with a filling between each lay
 
 8. Prepare the filling by combining the salted caramel sauce with the chopped toasted pecans.
 
-9. Prepare the frosting by beating the butter until creamy. Gradually add the powdered sugar and vanilla, followed by the heavy cream.
+9. Prepare the frosting by beating the butter until creamy. Gradually add the powdered sugar, cocoa powder, and vanilla, followed by the milk. Beat until smooth and spreadable.
 
 10. Place the first cake layer on a serving plate and spread half of the filling over the top.
 
